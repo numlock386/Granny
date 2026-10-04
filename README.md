@@ -226,4 +226,4 @@ Granny is available as a full free version, providing players with all features 
 Download Granny now to experience the ultimate survival horror adventure! Don't miss out on this chilling journey!
 
 ---
-**Last updated:** 2026-10-03 21:55:18 UTC
+**Last updated:** 2026-10-04 00:16:35 UTC
